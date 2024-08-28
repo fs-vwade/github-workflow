@@ -1,2 +1,2 @@
-To Improve is to change
-There is nothing permanent, except change
+> To Improve is to change <br>
+There is nothing permanent, except changes
